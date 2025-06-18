@@ -8,7 +8,7 @@
 
 - Reach me: **work.brajbhujel@gmail.com**
 
-- You can find my resume at: [https://drive.google.com/drive/folders/1wBfuXXSUtlpRhJuvGHyjqKFxIbOlqQSe?usp=drive_link](https://drive.google.com/drive/folders/1wBfuXXSUtlpRhJuvGHyjqKFxIbOlqQSe?usp=drive_link)
+- You can fine my resume at: [Resume](https://docs.google.com/document/d/1-3vREhl-3XPHVjy3fJ-Oi5cQ8p0YYrV54-JkR-askio/edit?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
