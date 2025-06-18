@@ -8,7 +8,7 @@
 
 - Reach me: **work.brajbhujel@gmail.com**
 
-- You can fine my resume at: [Resume](https://docs.google.com/document/d/1-3vREhl-3XPHVjy3fJ-Oi5cQ8p0YYrV54-JkR-askio/edit?usp=drivesdk)
+- You can fine my resume at: [Resume] (https://docs.google.com/document/d/1GL2eZTqu3dhN9wfZUTDGI8rZ0q6r7UeAz6mT5aO9PLU/edit?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
