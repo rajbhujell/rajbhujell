@@ -4,11 +4,11 @@
 
 - I’m currently working on **some personal projects and my own portfolio**
 
-- 👨‍💻 All of my projects are available at(currently building) [https://bishawaraj.com.np/](https://bishawaraj.com.np/)
+- All of my projects are available at(currently building) [https://bishawaraj.com.np/](https://bishawaraj.com.np/)
 
 - Reach me: **work.brajbhujel@gmail.com**
 
-- You can fine my resume at: [Resume](https://docs.google.com/document/d/1GL2eZTqu3dhN9wfZUTDGI8rZ0q6r7UeAz6mT5aO9PLU/edit?usp=drivesdk)
+- You can fine my resume at: [Resume](https://bishawaraj.com.np/public/Bishawa%20Resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
